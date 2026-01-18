@@ -36,7 +36,7 @@
 
 ## Connect with Me
 - LinkedIn: [Shivam Bhardwaj](https://www.linkedin.com/in/shivam-bhardwaj-a90539253)  
-- Email: shivambhardwaj@example.com  
+- Email: shivambhardwaj@gmail.com  
 
 ---
 
